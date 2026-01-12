@@ -106,4 +106,3 @@ If you’re interested in healthcare research, consulting, or global market insi
 
 📧 Email: [shaanurrahman2018@gmail.com]  
 🔗 LinkedIn: [https://www.linkedin.com/in/shaan-ur-rahman/]
-# Github-Portfolio
