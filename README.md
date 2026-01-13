@@ -2,7 +2,7 @@
 
 🎓 **B.Tech in Biotechnology (2024)**  
 📍 India  
-🔗 LinkedIn: [https://www.linkedin.com/in/shaan-ur-rahman/]  
+🔗 LinkedIn: [https://linkedin.com/in/shaan-ur-rahman]  
 📧 Email: [shaanurrahman2018@gmail.com]
 
 ---
